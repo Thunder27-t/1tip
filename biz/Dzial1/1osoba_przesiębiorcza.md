@@ -3,7 +3,7 @@ Osoba przedsiębiorcza to człowiek aktywny, odpowiedzialny i zaradny, który po
 Wykorzystuje swoje umiejętności, wiedzę, doświadczenie i cechy osobowości do rozwiązywania problemów oraz szukania nowych możliwości.
 
 Przedsiębiorczość nie oznacza wyłącznie prowadzenia firmy — to również sposób myślenia i działania w życiu codziennym.
-
+--------------------------------------
 👉 Przykłady zachowań przedsiębiorczych:
 
 Samodzielne planowanie nauki lub pracy.
